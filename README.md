@@ -1,4 +1,4 @@
-# Not-Another-DRISHTI-Project
+# DRISHTI-See-the-World-with-us
 
 #### Major Project Google Drive folder link: [Major Project Folder](https://drive.google.com/drive/folders/1-xXPtQ4XOt8niRewNuXN-E2wlu1qskTL?usp=sharing)
 
